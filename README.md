@@ -1,1 +1,3 @@
-# what-s-on-your-mind
+# *What’s On Your Mind: The Moment You Stop Living in Your Head, Everything Changes*
+## *Tired of mental exhaustion from overthinking? Discover the life-changing shift that happens when you move from constant mental chatter to present-moment awareness. Learn how to break the habit of overthinking, reclaim your attention, and finally start living in reality. Science-backed techniques to quiet your mind in 60 seconds.* [More details…](https://spiritualkhazaana.com/web-stories/whats-on-your-mind/)
+## #Motivation #Mindset #SelfImprovement #Discipline #SilenceIsPower #StoicMindset #SelfMastery #QuietConfidence #PersonalGrowth #Boundaries #MentalStrength #Focus #SuccessHabits #LifeLessons #2026Mindset
